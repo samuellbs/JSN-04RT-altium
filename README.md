@@ -1,0 +1,1 @@
+# JSN-04RT-altium
